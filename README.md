@@ -1,1 +1,1 @@
-# ACTIVITY1
+# ACTIVITY1 This meme shows a funny and relatable scene during the intramurals where one student is lying dramatically on the floor while others surround him. The caption “POV: Sabi nila fun lang daw… bakit ganito?” humorously reflects the exhaustion and struggles that come with intramural activities, even though they are supposed to be fun. It captures the mix of comedy, stress, and teamwork behind school events.
